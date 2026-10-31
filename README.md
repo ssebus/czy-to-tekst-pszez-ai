@@ -1,0 +1,1 @@
+# czy-to-tekst-pszez-ai
